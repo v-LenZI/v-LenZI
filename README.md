@@ -1,0 +1,5 @@
+- 👋 Hi, I’m Vítor
+- 👀 I’m interested in programming and playing video games
+- 🌱 I’m currently learning to program
+- 💞️ I’m looking to collaborate on Internet
+- 📫 How to reach me ----->   Twitter: @LenZi_v
